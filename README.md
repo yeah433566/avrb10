@@ -26,6 +26,6 @@
 结语  
 选择正规平台观看日本AV影片，确保了高清播放、无广告干扰以及安全的观影体验，保障了用户的隐私和数据安全。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/yeah433566/avrb10 )</span>
 
 
